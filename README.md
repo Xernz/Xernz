@@ -3,4 +3,4 @@ Yo Xernz is here
 - Just getting started with programming things.
 
 You can reach me here:
-nothing, cuz i live in the void
+nowhere, cuz i live in the void
