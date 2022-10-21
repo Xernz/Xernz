@@ -1,5 +1,5 @@
 Yo Xernz is here
-- Just a cheerfull and random guy
+- Just a random guy
 - Just getting started with programming things.
 
 You can reach me here:
