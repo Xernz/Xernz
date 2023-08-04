@@ -1,6 +1,2 @@
-Yo Xernz is here
-- Just a random guy
-- Just getting started with programming things.
-
-You can reach me here:
-nowhere, cuz i live in the void
+Just a regular man search for meaning
+- Getting excited in the complexity of a system
