@@ -1,2 +1,1 @@
-Just a regular man search for meaning
-- Getting excited in the complexity of a system
+Start coding just for the sake of enjoyment of building and solving problem's i encountered.
